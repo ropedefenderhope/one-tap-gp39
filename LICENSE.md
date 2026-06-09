@@ -1,4 +1,4 @@
-
+one tap Script instant offers the most advanced one tap Script, with unlimited stamina and one-hit kill. Perfect for dominating any match.
 
 
 
